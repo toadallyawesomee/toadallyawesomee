@@ -1,5 +1,5 @@
 # 💫 hi! i'm dicky:
-roses are red<br>violet is blue<br>this account was freshly created<br>so, nice to meet you<br><br>⚡ Fun fact
+roses are red<br>violet is blue<br>this account was freshly created<br>so, nice to meet you<br><br>
 
 
 ## 🌐 Socials:
